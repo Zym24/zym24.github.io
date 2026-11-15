@@ -1,1 +1,1 @@
-Link sito [[Qui]](https://zym24.github.io)
+Link sito [[QUI]](https://zym24.github.io)
